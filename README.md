@@ -1,10 +1,24 @@
 # Hey there!!
-Welcome to my account
 
+I am Clover, and welcome to my account!
+
+A little description about myself
 Things I love:
-#Pokemons
-#DRAGONITE!
-#FOODDDDDDDDD
-#DHS
-#MOBILE LEGENDS
-#Social media
+# Pokemons
+# DRAGONITE!
+# FOODDDDDDDDD
+# DHS
+# MOBILE LEGENDS
+# Social media
+
+Hobbies:
+- playing pokemon Go
+- Being on social media
+- drawing
+- singing
+- sleeping
+- watching tv
+
+*MY STORIES*
+
+pls enjoy my story ideas and I hope you can appreciate them!!
