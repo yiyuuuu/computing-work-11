@@ -2,7 +2,8 @@
 
 I am Clover, and welcome to my account!
 
-A little description about myself
+*A little description about myself*
+
 Things I love:
 #Pokemons
 #DRAGONITE!
