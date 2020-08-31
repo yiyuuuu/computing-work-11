@@ -3,4 +3,4 @@
 - the dian you thingy(shi jian bu zao le, wo gai qu shang chuang le)
 
 *Reactions
-- 
+- our reaction when we receive a lot of hw or wtv we dont like(ztzy)
