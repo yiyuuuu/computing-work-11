@@ -1,0 +1,4 @@
+- talking to markers and pensss and the whiteboard('Who r u ah? Wat is ur name ah??')
+- NO ARC NO MARK
+- Hair line
+- HELLO HELLO??
