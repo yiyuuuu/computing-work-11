@@ -1,3 +1,3 @@
 - the funny tone
-- gu. quake, liu, ma(the names she created)
+- gu. quake, liu, ma (uses surnames for the boys)
 - the bad language she said to us(gondu, idiot, stupid)
